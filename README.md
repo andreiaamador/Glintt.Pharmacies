@@ -1,0 +1,1 @@
+# Glintt.Pharmacies
